@@ -1,2 +1,0 @@
-# Galaxia-amor
-Love 
